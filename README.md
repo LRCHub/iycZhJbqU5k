@@ -1,0 +1,56 @@
+# Che'Nelle – Happiness
+
+> **歌詞登録ステータス：プレーン歌詞のみ**
+
+```
+嬉しいこと 悔しいこと
+一番に伝えたいのに
+空回りばかり oh
+嬉しいとき 悔しいとき
+探しもとめても見つからない
+キミもそうなの？
+when you're sad in the dark
+すぐに分かるよ
+I'm not gonna give up tonight
+不器用だけど 隣にいるよ ずっと
+I'm always gonna be with you
+守りたいの
+世界中で一番 キミのことが
+大切なの
+大好きすぎて 上手くいえないけど
+キミがいる それだけでいい
+'COS いつでも your my happiness
+your my happiness
+雪降る夜 星が流れ
+キミを思い浮かべ
+つよがりすぎないでね
+この街の きらめきたち
+どんな未来に繋がってるの？
+ともに光へ
+Make a wish for you and I
+Under the silent night
+キミの幸せが 叶うのならば
+何度も ワタシ 祈るよ
+誰よりもキミを守りたいの
+今日も明日もずっと 変わらないよ
+It's never gonna change
+大好きすぎて 上手くいえないけど
+キミがいて強くなれる
+'COS いつでも your my happiness
+近くにいすぎて
+気づけなかったけど
+Everyday キミにね 救われてた
+ありがとう Forever the love of
+my life
+誰よりもキミを守りたいの
+you're my happiness
+I'm always gonna be with you
+守りたいの
+世界中で一番 キミのことが
+大切なの
+大好きすぎて 上手くいえないけど
+キミがいる それだけでいい
+'COS いつでも You're my…
+You're my happiness
+大好きよ You're my happiness
+```
